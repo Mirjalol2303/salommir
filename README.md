@@ -1,0 +1,2 @@
+# salommir
+dars uchun
